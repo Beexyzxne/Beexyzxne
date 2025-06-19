@@ -1,7 +1,7 @@
 
 ![1000001020](https://github.com/user-attachments/assets/47f96082-d9b3-4e08-8aa0-9a1c8eca272c)
 
-﹌﹌﹌﹌﹌˙ . ꒷ 🎲. 𖦹˙—﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌˙ . ꒷ 🎲. 𖦹˙—﹌﹌﹌﹌﹌﹌
 ✦ ` Alright, maybe gonna find him today , I gotta get someone to call my lover ! . 🎵
 
 🎲`Helloz pt player ! you can call me by beexy , naiaa , chance/exy . or any of my other kins ! im a 17 y.o.

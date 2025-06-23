@@ -5,7 +5,7 @@
 
 ✦ ` Alright, maybe gonna find him today , I gotta get someone to call my lover ! . 🎵
 
-🎲`Helloz pt player ! you can call me by beexy , naiaa , chance/exy . or any of my other kins ! im a 17 y.o.
+🎲`Helloz pt player ! you can call me by beexy , naiaa , chance/exy . or any of my other kins ! im a 17 y.o cis female ^_^
 
 ![1000001021](https://github.com/user-attachments/assets/9affe2de-8f2b-45fd-81e9-450e411e2dea)
 

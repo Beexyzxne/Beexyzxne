@@ -5,13 +5,13 @@
 
 ✦ ` Alright, maybe gonna find him today , I gotta get someone to call my lover ! . 🎵
 
-🎲`Helloz pt player ! you can call me by beexy , naiaa , chance/exy . or any of my other kins ! im a 17 y.o cis female ^_^
+🎲`Helloz pt player ! you can call me by beexy , naiaa , chance/exy . or any of my other kins ! im a 17 y.o, straight, cis female and im from Indonesia if you're wondering!! ^_^
 
 ![1000001021](https://github.com/user-attachments/assets/9affe2de-8f2b-45fd-81e9-450e411e2dea)
 
 🎲`ABOUT ME ;
 
-🌹.ᐟ I enjoy a lot of media, but mostly roblox now !
+🌹.ᐟ I enjoy a lot of media, but mostly roblox now ! you can ask me more abt my fandoms since i might not mention all of it here :^D
 
 🌹.ᐟ English is my second language so i might make mistakes, feel free to correct me but please don't be rude about it since it can be really offensive to me '^_^
 
@@ -36,7 +36,7 @@ i have my own beliefs, can people just be respectful to eachother ;-;
 
 🌀.ᐟ oc x canon haters ;-;
 
-❕I do not have that much dnis just dont be a jerk/weirdo/an asshole in general .
+!! I do not have that much dnis just dont be a jerk/weirdo/an asshole in general . !!
 
 💥`THIN ICE ;
 
@@ -51,14 +51,14 @@ don't ever say stuff like "i love (character) more than u" or "I relate to (char
 
 fandom ;
 
-🪽.ᐟ phighting, forsaken, let him go, SEWH, ^_^ fans 
+🪽.ᐟ phighting, forsaken, let him go, SEWH, ^_^ (hwwhp).. etc 
 
 Music ;
 
-🪽.ᐟ mitski, mother mother, kikuo/ kikuohana, maretu, hindia, beabadoobee
+🪽.ᐟ mitski, mother mother, kikuo/ kikuohana, maretu, hindia, beabadoobee.. etc
 
 I have much more but i forgot ;-;
-but hey feel free to int with me if you're not on my dni list!! 
+but hey feel free to int with me if you're not in my dni list!! 
 
 ﹌﹌﹌﹌﹌˙ . ꒷ 🎲. 𖦹˙—﹌﹌﹌﹌﹌
 

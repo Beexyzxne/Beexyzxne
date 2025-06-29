@@ -3,7 +3,7 @@
 
 ﹌﹌﹌﹌﹌﹌˙ . ꒷ 🎲. 𖦹˙—﹌﹌﹌﹌﹌﹌
 
-✦ ` Alright, maybe gonna find him today , I gotta get someone to call my lover ! . 🎵
+✦ ` ᴬˡʳⁱᵍʰᵗ, ᵐᵃʸᵇᵉ ᵍᵒⁿⁿᵃ ᶠⁱⁿᵈ ʰⁱᵐ ᵗᵒᵈᵃʸ , ᴵ ᵍᵒᵗᵗᵃ ᵍᵉᵗ ˢᵒᵐᵉᵒⁿᵉ ᵗᵒ ᶜᵃˡˡ ᵐʸ ˡᵒᵛᵉʳ !♬.ᐟ
 
 🎲`Helloz pt player ! you can call me by beexy , naiaa , chance/exy . or any of my other kins ! im a 17 y.o, straight, cis female and im from Indonesia if you're wondering!! ^_^
 

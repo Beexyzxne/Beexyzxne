@@ -43,7 +43,7 @@ i have my own beliefs, can people just be respectful to eachother ;-;
 🌀.ᐟ Randomly venting/ranting serious topics. I don't mind vent/rant but please..ask for my permission first. im not always in a mentally and physically okay condition and it can be really overwhelming for me. Ignoring this may lead to lack of response, or dry response.
 
 🌀.ᐟ COMPETITIONS. i hate this :C
-don't ever say stuff like "i love (character) more than u" or "I relate to (character) more than you" etc, It's extremely triggering for me and i don't like it. 
+don't ever say stuff like "i love (character) more than u" or "I relate to (character) more than you" etc, It's extremely triggering for me and i don't like it. !! note that of course you can like or relate to smth i do, i just dont like it turned into a competitions ;-;
 
 ![1000001025](https://github.com/user-attachments/assets/87dc5590-2e84-4d39-8c86-eeb4d10be61f)
 

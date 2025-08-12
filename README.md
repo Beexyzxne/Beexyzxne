@@ -1,4 +1,5 @@
-<img width="1328" height="1418" alt="1000003019" src="https://github.com/user-attachments/assets/dd3d3b55-f927-45ca-8812-d77caa9b3d98" />
+<img width="1321" height="1420" alt="1000003020" src="https://github.com/user-attachments/assets/31afe884-9623-4651-a938-9fd00d41d5c8" />
+
 
 MORE INFOS SOON !! WORK IN PROGRESS X_X
 

@@ -1,7 +1,7 @@
 <img width="1321" height="1420" alt="1000003020" src="https://github.com/user-attachments/assets/31afe884-9623-4651-a938-9fd00d41d5c8" />
 
 
-MORE INFOS SOON !! WORK IN PROGRESS X_X
+MORE INFOS SOON !! WORK IN PROGRESS X_X am lazzyy. . .
 
 <!--
 **Beexyzxne/Beexyzxne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

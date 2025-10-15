@@ -1,5 +1,4 @@
-![Uploading 1000010453.png…]()
-
+<img width="1328" height="1418" alt="1000010453" src="https://github.com/user-attachments/assets/b8a10d24-5723-4fd2-9e05-929aa1517922" />
 
 
 MORE INFOS SOON !! WORK IN PROGRESS X_X am lazzyy. . .

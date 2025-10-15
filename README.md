@@ -1,4 +1,5 @@
-<img width="1321" height="1420" alt="1000003020" src="https://github.com/user-attachments/assets/31afe884-9623-4651-a938-9fd00d41d5c8" />
+![Uploading 1000010453.png…]()
+
 
 
 MORE INFOS SOON !! WORK IN PROGRESS X_X am lazzyy. . .

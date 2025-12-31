@@ -1,4 +1,5 @@
-remaking soon . .
+bro imtoo lazy to remake it guys plss have a coilshot bean instead for a while ok?? ok??? 
+![1000019612](https://github.com/user-attachments/assets/977dce9a-75c0-4af9-90d6-220878817d34)
 
 <!--
 **Beexyzxne/Beexyzxne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

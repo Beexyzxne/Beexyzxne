@@ -1,5 +1,5 @@
-bro imtoo lazy to remake it guys plss have a coilshot bean instead for a while ok?? ok??? 
-![1000019612](https://github.com/user-attachments/assets/977dce9a-75c0-4af9-90d6-220878817d34)
+<img width="1594" height="1714" alt="1000019755" src="https://github.com/user-attachments/assets/e3b8a6c6-7fe5-4d81-8c02-f3dbfc0a2ceb" />
+
 
 <!--
 **Beexyzxne/Beexyzxne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

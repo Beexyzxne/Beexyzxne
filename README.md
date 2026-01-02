@@ -1,5 +1,10 @@
 ❝ 𝙘𝙖𝙪𝙨𝙚 𝙮𝙤𝙪 𝙠𝙣𝙤𝙬 𝙬𝙚'𝙧𝙚 𝙩𝙝𝙚 𝙨𝙖𝙢𝙚 . 𝙩𝙝𝙚𝙧𝙚'𝙨 𝙬𝙤𝙧𝙨𝙩 𝙩𝙝𝙞𝙣𝙜𝙨 𝙞 𝙘𝙖𝙣 𝙩𝙖𝙠𝙚 .❞
 <img width="1594" height="2042" alt="1000019761" src="https://github.com/user-attachments/assets/8eccb579-d545-44d5-b024-84ab08a5a315" />
+          
+          
+꒰❤︎꒱ $\color{#4E91AB}{"𝙘𝙖𝙣'𝙩}$ $\color{#4E91AB}{𝙘𝙖𝙩𝙘𝙝}$
+$\color{#4E91AB}{𝙢𝙚 !"}$
+$\color{#4E91AB}{- 𝙨𝙡𝙞𝙣𝙜𝙨𝙝𝙤𝙩}$
 
     ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
@@ -11,10 +16,19 @@
 ⌇ ᵒᵗʰᵉʳ ᵗʰᵃⁿ ᵗʰᵃᵗ ⁱⁿᵗ ᶠʳᵉᵉˡʸ ! ( ◠‿◠ )
 
     ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+   
+꒰❤︎꒱ $\color{#D87450}{"𝙣𝙤𝙬}$
+$\color{#D87450}{𝙮𝙤𝙪'𝙫𝙚}$
+$\color{#D87450}{𝙥𝙞𝙨𝙨𝙚𝙙}$
+$\color{#D87450}{𝙢𝙚}$
+$\color{#D87450}{𝙤𝙛𝙛!"}$
+$\color{#D87450}{- 𝙘𝙤𝙞𝙡}$
     
 𝙣𝙤𝙩𝙚 : 𝙞 𝙢𝙞𝙜𝙝𝙩 𝙢𝙞𝙨𝙨 𝙨𝙤𝙢𝙚 𝙢𝙚𝙨𝙨𝙖𝙜𝙚𝙨 𝙚𝙨𝙥𝙚𝙘𝙞𝙖𝙡𝙡𝙮 𝙞𝙛 𝙮𝙤𝙪 𝙙𝙞𝙙𝙣'𝙩 𝙬𝙝𝙞𝙨𝙥𝙚𝙧 𝙞𝙣 𝙩𝙝𝙚 𝙛𝙞𝙧𝙨𝙩 𝙥𝙡𝙖𝙘𝙚 𝙙𝙪𝙚 𝙩𝙤 𝙗𝙚𝙞𝙣𝙜 𝙖𝙛𝙠 𝙢𝙤𝙨𝙩 𝙤𝙛 𝙩𝙝𝙚 𝙩𝙞𝙢𝙚 , 𝙨𝙤 𝙨𝙤𝙧𝙧𝙮 ( ;´ ⌂ `;)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffa1c5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<img width="1594" height="548" alt="1000019778" src="https://github.com/user-attachments/assets/0a92f54d-e47c-4dd2-be9f-753018b97cee" />
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffa1c5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <!--
 **Beexyzxne/Beexyzxne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

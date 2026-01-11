@@ -30,7 +30,7 @@ $\color{#D87450}{- 𝙘𝙤𝙞𝙡}$
 
 <img width="1594" height="548" alt="1000019778" src="https://github.com/user-attachments/assets/0a92f54d-e47c-4dd2-be9f-753018b97cee" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffa1c5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bjiv5elpi7oiacb72rv7vgnxi4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8f314e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <!--
 **Beexyzxne/Beexyzxne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

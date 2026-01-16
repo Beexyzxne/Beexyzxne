@@ -1,3 +1,10 @@
+<p align="center">
+  <a href="https://github.com/AngelicDeceit">
+    <img align="center" src="https://komarev.com/ghpvc/?username=AngelicDeceit&label=coilshot&base=2579&color=AB405C&style=plastic" alt="coilshot Profile Views" />
+  </a>
+</p>
+
+
 <img width="1594" height="2042" alt="1000019761" src="https://github.com/user-attachments/assets/8eccb579-d545-44d5-b024-84ab08a5a315" />
           
           

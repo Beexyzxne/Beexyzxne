@@ -28,7 +28,9 @@ $\color{#D87450}{- 𝙘𝙤𝙞𝙡}$
 
 <p align="center">
   <a href=https://naia.straw.page/>𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚</a> ✦︎
-<a href=https://angelicdeceit.atabook.org/>𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a>
+<a href=https://angelicdeceit.atabook.org/>𝙖𝙩𝙖𝙗𝙤𝙤𝙠</a> ✦︎
+<a href=https://rentry.co/angelicdeceitt>𝙧𝙚𝙣𝙩𝙧𝙮</a>
+
   </p>
 <p align="center">ᵗʰᵃⁿᵏʸᵒᵘ ᶠᵒʳ ᵍⁱᵐᵐⁱᶜᵏˢ ᵃⁿᵈ ˢⁱᵍⁿⁱⁿᵍ ᵃᵗᵃ ! 
           

@@ -3,22 +3,24 @@
 <p align="center">
   <a
 
-  heii remaking stuffs and infos soon (when i feel like it) not gonna use rentry anymore, so it might take times im also busy whatever LOL
+  remake soon 
   
 <p align="center">
   <a
     
-  sign my ata aww :3? [atabook](https://angelicdeceit.atabook.org/)
+  sign my ata aww :3?? [atabook](https://angelicdeceit.atabook.org/)
 
 <p align="center">
   <a
     
-  basic dni
+  basic dni + under16 iwec
 
  <p align="center">
   <a
     
-  i block freely, don't EVER associate me with weird/toxic yumeshippers + dni if you're a yume thats dehumanize your doubles to the point of harassing them, being competitive and generally WEIRDDDD ;_;;;
+  i block freely, don't EVER associate me with weird/toxic yumeshippers + dni if you are one, antis dni too ok
+
+  
 
 
 

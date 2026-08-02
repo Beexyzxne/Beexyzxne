@@ -5,6 +5,11 @@
 <p align="center">
   <a
     
+   [𝓕luffle𓂃🪶](https://fluffle.cc/readmeiguess)
+   
+   <p align="center">
+  <a
+    
   $${\color{#7D6C5A} basic\ dnis\ +\ under16\ iwec}$$
   $${\color{#7D6C5A} i\ block\ and\ hide\ freely 𓈒}$$
 
@@ -12,7 +17,7 @@
 <p align="center">
   <a
     
-  $${\color{#7D6C5A} hmu\ on\ my\ 新}$$[𝖻𝗈𝗈𝗄](https://angelicdeceit.atabook.org/) $${\color{#7D6C5A} if\ its\ important\ or\ if\ you\ want\ to\ sign\ it!}$$
+  $${\color{#7D6C5A} hmu\ on\ my\ 新}$$[𝖻𝗈𝗈𝗄𓂃📜](https://angelicdeceit.atabook.org/) $${\color{#7D6C5A} if\ its\ important\ or\ if\ you\ want\ to\ sign\ it!}$$
 
     
 

@@ -17,7 +17,7 @@
 <p align="center">
   <a
     
-  $${\color{#7D6C5A} hmu\ on\ my\ 新}$$[𝖻𝗈𝗈𝗄𓂃📜](https://angelicdeceit.atabook.org/) $${\color{#7D6C5A} if\ its\ important\ or\ if\ you\ want\ to\ sign\ it!}$$
+  $${\color{#7D6C5A} hmu\ on\ my\ 新}$$[𝓑𝗈𝗈𝗄𓂃📜](https://angelicdeceit.atabook.org/) $${\color{#7D6C5A} if\ its\ important\ or\ if\ you\ want\ to\ sign\ it!}$$
 
     
 
